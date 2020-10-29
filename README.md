@@ -1,2 +1,2 @@
 # Spoon-and-Flora
- A love story
+ A love story & wedding gift
